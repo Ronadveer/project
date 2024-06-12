@@ -1,0 +1,1 @@
+# Initial Comments with the project day 1 assessment
